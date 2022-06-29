@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @suelenm
 - 👀 I’m interested in  aprender com cada um de vocês.
-- 🌱 I’m currently learning  IOS
+- 🌱 I’m currently learning  HR Agile 
 - 💞️ I’m looking to collaborate on  novos Jobs para todos . 
 - 📫 How to reach me  https://www.linkedin.com/in/suelen-matta-b569026a/
 
